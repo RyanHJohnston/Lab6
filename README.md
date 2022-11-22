@@ -1,4 +1,4 @@
-wn - they need your help! 
+N.O.R.A.D.’s infamous Santa Tracker is down - they need your help! 
 
 Every year the team tracks the jolly man as he makes his way across the world delivering presents on Dec 24th. 
 We’ve enlisted 8 friends from across the globe to provide updates, and our 1 view app will show his progress.
